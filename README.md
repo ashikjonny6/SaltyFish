@@ -1,4 +1,4 @@
-# 2024 Latest SaltyFish Coupon Codes - Organized Summary of SaltyFish Deals
+# 2025 Latest SaltyFish Coupon Codes - Organized Summary of SaltyFish Deals
 
 ## SaltyFish Introduction
 SaltyFish, established in 2019 and operated by a team from China, is known for offering high-speed VPS servers featuring premium network connections such as Telecom CN2 GIA, Unicom 4837/9929 lines, and Hong Kong Lite. SaltyFish stands out in the competitive market with its budget-friendly pricing strategy.
